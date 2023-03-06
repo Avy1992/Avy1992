@@ -19,4 +19,3 @@
 
 ### Contacto
 * Via e-mail: **adri23458@gmail.com**
-* Via telefónica: **616621271**
